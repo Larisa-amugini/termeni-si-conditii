@@ -1,1 +1,5 @@
 # termeni-si-conditii
+
+
+
+nice
